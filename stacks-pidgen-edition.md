@@ -124,3 +124,34 @@ If you want, I fit **make a small table comparing Stacks, Genius, and Ethereum L
 
 Do you want me to do that?
 
+---
+
+Ok hear dis one, bodmon Naija style:
+
+---
+
+**Di Sun wey dey show Truth**
+
+Socrates siddon for corner, rub him chin,
+“Make I yan you sometin wey dey sweet for skin.
+See di Sun? Na im dey bright our eye,
+Na im dey make tings clear for land and sky.
+
+Without am, darkness go cover road,
+Na confusion go dey, heavy like load.
+Sun be king wey light di way,
+Na im give power to life everyday.
+
+But no be Sun wey be di wahala’s end,
+Na small mirror to Truth we dey defend.
+Truth dey shine pass Sun for eye,
+But you gatz climb wisdom step to touch am high.
+
+So follow question like goat wey sabi graze,
+No fear shadow, no fear blaze.
+Sun na guide, Truth na throne,
+Wisdom dey wait make you claim your own.”
+
+---
+
+Wanna make it **more street Naija slang**, like Lagos bus stop banter, or keep it poetic but deep?
